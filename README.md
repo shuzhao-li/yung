@@ -21,7 +21,7 @@ Tombs of Yung family at the Cedar Hill Cemetery. Husband and wife on the front, 
 而中美文化交流，亦以此為嚆矢也。
 自先生初次攜學生赴美，至今適屆一百周年。
 尋聲考跡，想高躅于當年；振鐸揚芬，播景行於終古。
-維茲俊哲，實系人思。爰泐碑文，借申虔慕。
+維茲俊哲，實系人思。爰泐碑文，藉申虔慕。
 中華民國教育部部長蔣彥士敬撰
 一九七二年八月
 ```
