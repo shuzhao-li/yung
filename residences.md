@@ -15,7 +15,7 @@ Signed in his autobiograph, November, 1909.
 
 
 
-## 284 Sergeant Street, Hartford
+## 284 Sergeant Street, Hartford (Place of Death)
 
 Home at the time of death. 
 
