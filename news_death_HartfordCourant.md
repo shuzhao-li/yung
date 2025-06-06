@@ -8,7 +8,6 @@ Retrieved July 4, 2024.
 
 ![Clip of the Article](docs/photos/courant_news10120422.jpeg)
 
-
 **OCR, with errors**
 
 DEATH OF DR. YUNG WING 
@@ -19,9 +18,9 @@ Empress Dowager Once Offered Reward of $100,000 For His Head.
 
 LEADER OF CHINESE REFORM PARTY IN 1898-1902. 
 
-Dr. Yung Wing, scholar, statesinan and a pioneer in the movement which has resulted a new China, died yesterday morning at 11:30 o'clock at his home, No. 284 Sargeant street. He suffered a stroke of apoplexy on Monday of last week and was unconscious for most of the time from that seiz- Dr. Yung Wing. ure until his death.
+Dr. Yung Wing, scholar, statesman and a pioneer in the movement which has resulted a new China, died yesterday morning at 11:30 o'clock at his home, No. 284 Sargeant street. He suffered a stroke of apoplexy on Monday of last week and was unconscious for most of the time from that seizure until his death.
 
-He suffered &amp; slight shock in May of last year and his health has been impaired since. He was, however, greatly interested in the developments in China during * the past year and watched the rapid progress of the movement for which he had worked for a lifetime. On Saturday he received a photograph of Sun Yat Sen from that leader of new China but it came too late as Dr. Yung was then unconscious. Yung Wing was born November 17, 1828, in the village of Nam Ping, which is about four miles from the Portuguese colony of Macao and is on Pedro Island, lying west of Macao.
+He suffered a slight shock in May of last year and his health has been impaired since. He was, however, greatly interested in the developments in China during the past year and watched the rapid progress of the movement for which he had worked for a lifetime. On Saturday he received a photograph of Sun Yat Sen from that leader of new China but it came too late as Dr. Yung was then unconscious. Yung Wing was born November 17, 1828, in the village of Nam Ping, which is about four miles from the Portuguese colony of Macao and is on Pedro Island, lying west of Macao.
 
 He was one of a family bf four children, three boys and 1 a girl, Dr. Yung was the last survivor of the fam. ily. In his work, "My Life in China and America," Dr. Yung writes:-"As early as 1834, an English dady, Mrs.
 
@@ -47,15 +46,19 @@ The commission established headquarters Collins street, near Woodland, and 8 num
 
 He was afterwards minister to the United States, at the time that two ministers were appointed to each the United States, Spain and Peru. Yung Wing was associated with Chin at Washington as assistant minister resident, with the privilege of wearing the button of the second rank by brevet. That was from 1879 to 1882 and Yung Wing had spent the previous four years in Peru investigating the affairs of Chinese laborers in that country. In 1882 Yung Wing went to China and was appointed to an Important office, but his stay was brief, because of the poor health of his wife. He was recalled to China in 1895, where he had an audience with Li Hung Chang and the emperor.
 
-1 He was then sent to London to confer with the Chinese minister there and later, when he returned to China, was made a noble of the first rank in order that he might take part in the peace negotiations which came after the war between China and Japan, Under the coup d'etat of 1838, by which the Empress Dowager gained control of the government, Dr. Yung became even more closely allied with the reform movement in his country and was forced to take up his residence in Shanghai and, still later was warned to go to Hong Kong and place himself under the protection of the British government. He remained in Hong Kong from 1900 to 1902, returning to this country in the latter year, He did not learn until after he left China that the Empress Dowager had offered a reward of $100,- 000 for his head. From the time of his return to this country until his death he had lived quietly in this city. He had secured an important concession for the construction of the Tientsin &amp; Ching Kiang Railroad, had always worked for the suppression of the opium traffic and represented his country at Queen Victoria's jubilee in London in 1897.
+1 He was then sent to London to confer with the Chinese minister there and later, when he returned to China, was made a noble of the first rank in order that he might take part in the peace negotiations which came after the war between China and Japan, Under the coup d'etat of 1838, by which the Empress Dowager gained control of the government, Dr. Yung became even more closely allied with the reform movement in his country and was forced to take up his residence in Shanghai and, still later was warned to go to Hong Kong and place himself under the protection of the British government. He remained in Hong Kong from 1900 to 1902, returning to this country in the latter year, He did not learn until after he left China that the Empress Dowager had offered a reward of $100,000 for his head. From the time of his return to this country until his death he had lived quietly in this city. He had secured an important concession for the construction of the Tientsin &amp; Ching Kiang Railroad, had always worked for the suppression of the opium traffic and represented his country at Queen Victoria's jubilee in London in 1897.
 
-He was for many years president of the Congregational Society of New England, but his great work was with the reform party of his own country. In its progress he was deeply interested and his interest had been especially keen since the establishment of the new republic which he had lived to see. On February 24, 1875, he married Mary Louisa Kellogg of this city, a sister of William H. Kellogg of the Aetna Life Insurance Company, who died on May 29, 1886, Two sons were born of the marriage. Morrison B.
-
-and Bartlett G. Yung. The former, with his wife, is at the family home, No. 284 Sargeant street, and the latter arrived in Shanghai late last week. He went to China as the agent of the Colt Patent Fire Arms Manufacturing Company.
+He was for many years president of the Congregational Society of New England, but his great work was with the reform party of his own country. In its progress he was deeply interested and his interest had been especially keen since the establishment of the new republic which he had lived to see. On February 24, 1875, he married Mary Louisa Kellogg of this city, a sister of William H. Kellogg of the Aetna Life Insurance Company, who died on May 29, 1886, Two sons were born of the marriage. Morrison B.and Bartlett G. Yung. The former, with his wife, is at the family home, No. 284 Sargeant street, and the latter arrived in Shanghai late last week. He went to China as the agent of the Colt Patent Fire Arms Manufacturing Company.
 
 News of the death of Dr. Yung was cabled to n him yesterday, The funeral will be held d in the chapel of the Asylum Hill Congregational Church at 3 o'clock tomorrow afternoon, Rev. Joseph H. Twichell, pastor of the church, officiating. The burial will be in Cedar Cemetery.
 
-Rev. Mr. Twichell's Tribute. To the Editor of The Courant:With the death in this city of Mr. Yung Wing at the venerable age of 84 came earthly close a career of very remarkable distinction and usefulness.
+![Eulogy by Rev Joseph H Twichell](docs/photos/Twichell_Tribute.jpg)
+
+### Rev. Mr. Twichell's Tribute. 
+
+To the Editor of The Courant: 
+
+With the death in this city of Mr. Yung Wing at the venerable age of 84 came earthly close a career of very remarkable distinction and usefulness.
 
 Few men of his generation have presented so interesting a figure on the stage of action, have achieved so important a work or have won so clear a title to honor as he. For forty years it was fortune and privilege to sustain relations of intimate acquaintance with him and during that whole period I became more and more impressed with the qualities of high-mindedness and great heartedness that characterized him. Though in his early years, by the providential opportunity of a liberal education, he was raised into the knowledge and appreciation of a civilization more advanced that that of his native race, he was not in the least degree thereby alienated from that race in sympathy; was rather Inspired with a boundless passionate longing for its better welfare. was ever an intense patriot. He carried China continually on his heart.
 
