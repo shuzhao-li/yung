@@ -181,12 +181,12 @@ maintenance of this one.
 This accounts for my entrance into Mrs. 
 Gutzlaff's School, as one of only two boys first 
 admitted. Her school being thus enlarged and 
-modified temporarily, Mrs. Gutzlaff's two nieces 
+modified temporarily, Mrs. Gutzlaff's two nieces --  
 the Misses Parkes, sisters to Mr. Harry 
 Parkes who was afterwards knighted, by reason 
 of the conspicuous part he played in the second 
 Opium War, in 1864, of which he was in fact 
-the originator came out to China as assistants 
+the originator -- came out to China as assistants 
 in the school. I was fortunately placed under 
 their instruction for a short time. 
 

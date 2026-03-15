@@ -31,7 +31,7 @@ Island of St. Helena where we were obliged to
 stop for fresh water and provisions. Most 
 sailing vessels that were bound from the East 
 for the Atlantic board were accustomed to make 
-St. Helena their stopping place, St. Helena, as 
+St. Helena their stopping place. St. Helena, as 
 viewed from the shipboard, presented an outward 
 appearance of a barren volcanic rock, as though 
 freshly emerged from the baptism of fire and 
@@ -49,7 +49,7 @@ tomb. A large weeping willow hung and swept
 over it. We cut a few twigs, and kept them alive 
 till we reached this country and they were 
 brought to Auburn, N. Y., by Mr. Brown, who 
-planted them near Ms residence when he was 
+planted them near his residence when he was 
 teaching in the Auburn Academy for several 
 years before his departure for Japan. These 
 willows proved to be fine, handsome trees when 
@@ -63,7 +63,7 @@ York on the 12th of April, 1847, after a passage
 of ninety-eight days of unprecedented fair 
 weather. The New York of 1847 was altogether 
 a different city from the New York of 1909. It 
-was a city of only 250,000 or 300,000 inhabitants ; 
+was a city of only 250,000 or 300,000 inhabitants; 
 now it is a metropolis rivaling London in 
 population, wealth and commerce. The whole 
 of Manhattan Island is turned into a city of 

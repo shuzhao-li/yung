@@ -13,7 +13,7 @@ of Occidental civilization over that of China
 an impression which will always appeal to them 
 as cogent and valid ground for radical reforms 
 in China, however altered their conditions may 
-he in their subsequent careers. Quite a. number 
+he in their subsequent careers. Quite a number 
 of the survivors of the one hundred students, I 
 am happy to say, have risen to high official ranks 
 and positions of great trust and responsibility. 
@@ -69,7 +69,7 @@ and lose my head for it? But he said that at
 heart he was in favor of their being kept in the 
 States to continue their studies, and that I ought 
 to have detained them. In reply I asked how I 
-could have been supposed to read his heart at $ 
+could have been supposed to read his heart at a 
 distance of 45,000 lis, especially when it was well 
 known that His Excellency had said that they 
 might just as well be recalled. If His Excel- 
